@@ -1,1 +1,0 @@
-# galvanizememory-drill3
